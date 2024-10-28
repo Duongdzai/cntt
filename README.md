@@ -1,3 +1,0 @@
-# cntt
-luu tru
-dvd
